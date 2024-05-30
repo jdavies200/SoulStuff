@@ -1,0 +1,1 @@
+Icarus is a large longsword sword forged by [[Sword Kick Guy]]. Its hilt is black with a gold chain pattern on it, and the cross guard is long and rectangular, making for a good foothold. Once [[Sword Kick Guy]] starts kicking the sword, a long chain is embedded into the hilt that allows him to pull it back, for greater utility.

@@ -1,0 +1,6 @@
+Everybody in [[Small Town|the village]] knew never to enter [[The Forest]]. Parents warned their children of the dangerous wildlife that resided there, telling stories of people who were attacked by ferocious beasts, never to return. Of course, there were people who disobeyed. ==Outsiders to the village who were unaware of the warnings, villagers, children who fought against.== But they never went too deep, and they never lingered long, whether motivated by fear, guilt, or pure satisfaction. 
+
+That is, until [[Mick|Mick]]. He couldn't have been older than a toddler at the time. [[Hunter|Some]] of the older kids of the town brought him deep among the trees, a cruel prank on one they deemed as weaker than them. The adults in the village, used to the children disappearing for one reason or another during their time playing together outside, only caught wind that something was amiss once the kids returned to the village, a look of terror stricken across their faces, and Mick missing from among their ranks.
+
+## Events
+* [[Mick Enters the Woods]]

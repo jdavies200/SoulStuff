@@ -1,0 +1,1 @@
+Eli is a large grizzly bear found in [[The Forest]]. As a child, Mick befriends him against the wishes of [[Small Town]]'s residents, and later they come to frequently play together, sparring in matches that leave a lot of destruction. The other animals in the forest know to steer clear when they are competing.
